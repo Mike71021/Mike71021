@@ -1,1 +1,1 @@
-Développeur Front-End @ Data Scientest 🚀
+Développeur Front-End @DataScientest & @DevUniversity 🚀
